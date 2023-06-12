@@ -1,0 +1,2 @@
+# dinukasandeepa
+The Sinharaja Eco Lodge lankagama offers comfortable accommodation in the outskirts of the Sri Lanka rainforest of Sinharaja. The Sinharaja Rainforest being a "World Heritage" site offers a variety of beautiful creations of mother nature within the well balanced and preserved "eco system" cool springs, winding rivers, cascading water falls, thick forest inherited by endemic fauna and flora adds beauty and tranquility to the visitor.Just 50m to sinharaja entrance
